@@ -4,4 +4,4 @@ ok daughter i finish ur uh- nyan cat req, ITS SO BAD UGH
 
  thanks mom! love you :D 
 
- - sofi, your daughter 💌.
+ - sofi, your daughter 💌., yes i forked this repo sorry 🙁
